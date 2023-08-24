@@ -10,36 +10,36 @@ Hukum Tiger Ka Hukum
 
 
 
-Urumuki Merupuki Puttaaduraa
-Piduguni Pidikita Pattaaduraa
-Adugaduguna Gudi Kattaaliraa
-Thara Thara Tharamula Super Star’raa
+Urumuki Merupuki Puttaaduraa<br>
+Piduguni Pidikita Pattaaduraa<br>
+Adugaduguna Gudi Kattaaliraa<br>
+Thara Thara Tharamula Super Star’raa<br>
 
-Manishini Manishiga Choosthaaduraa
-Manasuki Manasuni Isthaaduraa
-Gadabida Jarigithe Lesthaaduraa
-Morigina Medalaki Urithaaduraa
+Manishini Manishiga Choosthaaduraa<br>
+Manasuki Manasuni Isthaaduraa<br>
+Gadabida Jarigithe Lesthaaduraa<br>
+Morigina Medalaki Urithaaduraa<br>
 
-Thalaiva Navvesthe… Style
-Thalaivaa Chitikestha… Style
-Thala Egaresthunte… Style
-Vayasuki Dhorakani Ithanoka Baaludu
+Thalaiva Navvesthe… Style<br>
+Thalaivaa Chitikestha… Style<br>
+Thala Egaresthunte… Style<br>
+Vayasuki Dhorakani Ithanoka Baaludu<br>
 
 
-Thalaiva Walking Ye… Style
-Thalaiva Warning Ye… Style
-Thalapadu Daring Ye… Style
-Emukalu Viravaka Evadini Vadhaladu
+Thalaiva Walking Ye… Style<br>
+Thalaiva Warning Ye… Style<br>
+Thalapadu Daring Ye… Style<br>
+Emukalu Viravaka Evadini Vadhaladu<br>
 
-Rey Ledhu Khaatharaa
-Vesthaadu Uppu Paatharaa
-Reyy Pattukokuraa
-Pele Mandhupaatharaa
+Rey Ledhu Khaatharaa<br>
+Vesthaadu Uppu Paatharaa<br>
+Reyy Pattukokuraa<br>
+Pele Mandhupaatharaa<br>
 
-Hey, Jaile Veedikunna Ille
-Assalu Nidharapovu Kalle
-Nakaraal Cheyyamaaku Saale
-Kadathadu Dokkachinchi Dole
+Hey, Jaile Veedikunna Ille<br>
+Assalu Nidharapovu Kalle<br>
+Nakaraal Cheyyamaaku Saale<br>
+Kadathadu Dokkachinchi Dole<br>
 
 Hukum Tiger Ka Hukum
 Urumuki Merupuki

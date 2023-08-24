@@ -41,44 +41,44 @@ Assalu Nidharapovu Kalle<br>
 Nakaraal Cheyyamaaku Saale<br>
 Kadathadu Dokkachinchi Dole<br>
 
-Hukum Tiger Ka Hukum
-Urumuki Merupuki
-Piduguni Pidikitaa, Hahaha
+Hukum Tiger Ka Hukum<br>
+Urumuki Merupuki<br>
+Piduguni Pidikitaa, Hahaha<br>
 
-Nuvu Manchigunte Manchi,Aey
-Nuvu Cheddagunte Chedda
-Neekedhi Ishtamaithe, Aey
-Adhi Telchukoraa Biddaa
+Nuvu Manchigunte Manchi,Aey<br>
+Nuvu Cheddagunte Chedda<br>
+Neekedhi Ishtamaithe, Aey<br>
+Adhi Telchukoraa Biddaa<br>
 
-MattaGidasala Egaraku Kodaka, Aey
-Pottu Teesi Pulusedatha
-Kannugapputhu Paaripothe Elaka, Aey
-Thappadhante Konda Thavvuthaa
+MattaGidasala Egaraku Kodaka, Aey<br>
+Pottu Teesi Pulusedatha<br>
+Kannugapputhu Paaripothe Elaka, Aey<br>
+Thappadhante Konda Thavvuthaa<br>
 
-Thalaiva Adugesthe… Style
-Thalaiva Wistlesthe… Style
-Thala Thala Dressesthe… Style
-Anigina Prajalaki Dhorikina Devudu
+Thalaiva Adugesthe… Style<br>
+Thalaiva Wistlesthe… Style<br>
+Thala Thala Dressesthe… Style<br>
+Anigina Prajalaki Dhorikina Devudu<br>
 
-Thalaiva Dancing Ye… Style
-Thalaiva Smoking Ye… Style
-Thala Nerisinagaani… Style
-Cheragani Charithalo Nilichina Okkadu
+Thalaiva Dancing Ye… Style<br>
+Thalaiva Smoking Ye… Style<br>
+Thala Nerisinagaani… Style<br>
+Cheragani Charithalo Nilichina Okkadu<br>
 
-Rey Ledhu Khaatharaa
-Vesthaadu Uppu Paatharaa
-Reyy Pattukokuraa
-Pele Mandhupaatharaa
+Rey Ledhu Khaatharaa<br>
+Vesthaadu Uppu Paatharaa<br>
+Reyy Pattukokuraa<br>
+Pele Mandhupaatharaa<br>
 
-Hey, Jaile Veedikunna Ille
-Assalu Nidharapovu Kalle
-Nakaraal Cheyyamaaku Saale
-Kadathadu Dokkachinchi Dole
+Hey, Jaile Veedikunna Ille<br>
+Assalu Nidharapovu Kalle<br>
+Nakaraal Cheyyamaaku Saale<br>
+Kadathadu Dokkachinchi Dole<br>
 
-Urumuki Merupuki
-Piduguni Pidikitaa
-Urumuki Merupuki
-Piduguni Pidikitaa, Hukum
-Hukum Tiger Ka Hukum
+Urumuki Merupuki<br>
+Piduguni Pidikitaa<br>
+Urumuki Merupuki<br>
+Piduguni Pidikitaa, Hukum<br>
+Hukum Tiger Ka Hukum<br>
 </p>
 

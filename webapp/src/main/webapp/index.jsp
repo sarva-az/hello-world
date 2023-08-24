@@ -1,4 +1,4 @@
-<h1><p style="color: #FF7A59"> <p style="font-family: Trebuchet MS">Hello, Welcome to DevOps World !!   </h1></p></p>
+<h1><p style="color: #FF7A59", style="font-family: Trebuchet MS">Hello, Welcome to DevOps World !!   </h1></p>
 <h2> Using Jenkins deploying code on Tomcat Server </h2>
 <h2> This is for you Guys </h2>
 <h3>Hukum Title song telugu Lyrics</h3>
